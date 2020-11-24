@@ -1,4 +1,4 @@
-## [@radiogossipnewsitalia](https://t.me/gossipnewsItaliascrittoriautori)
+## [@gossipnewsItaliascrittoriautori](https://t.me/gossipnewsItaliascrittoriautori)
 - [Faq](https://github.com/Gossip-News-Italia/Documenti/blob/main/Faq.md)
 - [Licenze](https://github.com/Gossip-News-Italia/Documenti/blob/main/License.md)
 - [Readme](https://github.com/Gossip-News-Italia/Documenti/blob/main/Readme.md)
