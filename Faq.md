@@ -13,7 +13,7 @@ Le collaborazioni che ha stretto in questi anni come Turchese Baracchi con Turch
 
 Principalmente rientrano sempre nell’ambito delle tematiche trattate su Gossip News Italia magazine che assicura i migliori risultati in termini di ritorno sull’investimento in comunicazione.
 Vi siete mai chiesti quali sono i veri blog famosi, quelli che stanno cavalcando l’onda del successo? Il Blog, abbreviativo di Web Log, è un social media che viene usato come diario personale, come mezzo per raccogliere informazioni specifiche e settoriali o per raccontare la storia delle piccole e medie imprese che hanno bisogno d’intraprendere un rapporto speciale con i propri lettori.
-Con il passare del tempo Gossip News Italia, però, e con lo sviluppo sempre continuo del web, il blog ha iniziato a diventare sempre più grande aprendo anche una Web Radio e una Web Tv (www.radiogossipnewsitalia.it) dove sono intervistati diversi artisti e personaggi pubblici della moda, spettacolo, tv etc..
+Con il passare del tempo Gossip News Italia, però, e con lo sviluppo sempre continuo del web, il blog ha iniziato a diventare sempre più grande aprendo anche una Web Radio e una Web Tv (www.gossipnewsitalia.it) dove sono intervistati diversi artisti e personaggi pubblici della moda, spettacolo, tv etc..
 
 # Note
 - N.b Diverso e inconfondibile, con un tocco un po’ trendy e un po’ glamour che racconta i tanti aspetti e le tante eccellenze di tutto il mondo: Gossip, Tv, Moda, Anticipazioni Tv, Radio e Musica, Benessere e Salute, Attualità e molto altro ancora.
