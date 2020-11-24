@@ -1,4 +1,4 @@
-# FAQ Radio Gossip News Italia
+# FAQ Gossip News Italia
 
 Gossip News Italia nasce nell’ottobre del 2017 dall’idea del suo attuale direttore Angelo Fasolo, precedentemente agente di spettacolo nella città di Torino, poi blogger per importanti giornali online, fino a giungere alla decisione di dar vita ad un suo portale di cronaca rosa che guardasse anche alla moda, alla salute e al benessere, alla musica e ai programmi radio e tv, con l’intenzione di renderlo una vera e propria testata giornalistica.
 Grazie ad Angelo e agli anni di esperienza maturata nella cura di noti personaggi televisivi, Gossip News Italia ottiene fin da subito grandi risultati, angelo con i suoi scoop in esclusiva è riuscito a far smuovere note testate giornalistiche sia cartacee sia digitali come Il Giornale, Il Messaggero, La Repubblica, Il Mattino e altre ancora.
