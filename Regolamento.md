@@ -1,4 +1,4 @@
-# Regolamento gruppo (@Gossip News Italia Scrittori-Autori)
+# Regolamento gruppo (@gossipnewsItaliascrittoriautori)
  
 Al fine di supportare discussioni costruttive, mantenere un livello minimo di decenza e di educazione, e promuovere la condivisione libera, è vietato:
 
